@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @elgin9
+- 👋 Hi, I’m @Elgin Maldonado
 - 👀 https://www.credly.com/users/elgin-maldonado.38cf5547
 - 👀 https://www.credly.com/users/elgin-maldonado
 
